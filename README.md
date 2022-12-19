@@ -1,1 +1,1 @@
-CODESCHOOLUZ
+CODESCHOOLUZ O'quvchisi Anasxon Azamov
